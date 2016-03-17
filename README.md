@@ -1,2 +1,2 @@
 # second-try
-just to remember it better
+Getting better every day is our own responsibility. Improve your skills, Kate. Go-go-go!
